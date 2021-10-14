@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+Wat I ❤️
+1. 🐦
+2. 🌲
+3. 🧔
