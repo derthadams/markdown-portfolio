@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+[Visit the stoopid Googles](https://www.google.com)
